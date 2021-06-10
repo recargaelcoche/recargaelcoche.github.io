@@ -1,1 +1,0 @@
-# sistemadegestionenergetica.github.io
